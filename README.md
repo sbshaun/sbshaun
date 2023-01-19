@@ -18,5 +18,10 @@ Here are some ideas to get you started:
 - 😘
 - gtx big zhi nan
 - gtx is chou guo ren
-- 
+- gtx 
 
+# gtx hobbt 
+- 011
+- pupp & code
+- 
+- 
