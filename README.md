@@ -16,4 +16,7 @@ Here are some ideas to get you started:
 
 ## shabi is gtx 😘 xihuan 11
 - 😘
+- gtx big zhi nan
+- gtx is chou guo ren
+- 
 
